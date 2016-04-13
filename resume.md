@@ -1,5 +1,5 @@
 # Christophe Hamerling
-**Montpellier Area, France**
+**Remote worker from Montpellier Area, France**
 
 ## Contact
 - [Mail: christophe.hamerling@gmail.com](mailto:christophe.hamerling+resume@gmail.com)
